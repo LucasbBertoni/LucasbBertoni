@@ -1,5 +1,5 @@
 # 💫 About Me:
-🖐Hello! I'm Lucas Bertoni, 21 years old.<br>👨‍💻 I’m currently working on Stone<br>
+🖐Hello! I'm Lucas Bertoni, 22 years old.<br>👨‍💻 I’m currently working on Stone<br>
 
 
 ## 🌐 Socials:
